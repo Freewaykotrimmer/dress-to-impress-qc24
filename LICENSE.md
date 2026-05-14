@@ -1,4 +1,4 @@
-#  
+#  updated Script for dress to impress offers the most advanced dress to impress Script, with esp and auto-collect. Perfect for dominating any match.
 
 
 
